@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Mani20020828
+- 👋 Hi, I’m @Manikanta46
 - 👀 I’m interested in learn newthings
 - 🌱 I’m currently learning AI
 - 💞️ I’m looking to collaborate on ...
